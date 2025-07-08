@@ -42,6 +42,6 @@
 结语
 在享受日本AV免费影片时，最重要的是选择合法、安全的观看平台，并采取必要的措施保护自己的隐私。通过使用合法平台、VPN、避免非法下载并遵守法律，您可以在安全的环境下享受高质量的成人娱乐内容。
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] (https://github.com/dtn2611/3333333 ）</span>
 
 
